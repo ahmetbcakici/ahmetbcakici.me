@@ -1,2 +1,0 @@
-# ahmetbcakici.me
-Personal Website
